@@ -88,9 +88,9 @@ Press `Ctrl+b` and then `d`
     ─「 ᴄʀᴇᴅɪᴛs 」─
 </h3>
 
-- <b>[ᴀɴᴏɴʏᴍᴏᴜs](https://github.com/devilking12)  ғᴏʀ  [ғᴀʟʟᴇɴ ᴍᴜsɪᴄ](https://github.com/Devilking12/noobFallenMusic)</b>
+- <b>[Noob](https://github.com/devilking12)  ғᴏʀ  [ғᴀʟʟᴇɴ ᴍᴜsɪᴄ](https://github.com/Devilking12/noobFallenMusic)</b>
 
 
-<b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/Devilking12/StringGenBot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ sᴛʀɪɴɢ ɢᴇɴ ʙᴏᴛ ᴜsᴇғᴜʟ 🖤</b>
+<b>ᴀɴᴅ ᴀʟʟ [Noob](https://github.com/Devilking12/StringGenBot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ sᴛʀɪɴɢ ɢᴇɴ ʙᴏᴛ ᴜsᴇғᴜʟ 🖤</b>
 
 ━━━━━━━━━━━━━━━━━━━━
