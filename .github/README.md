@@ -8,7 +8,7 @@
   <img src="https://te.legra.ph/file/1ddf84453b3fc15c1464f.png">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/Noob_string_bot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/Devil_string_session_bot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
